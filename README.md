@@ -1,6 +1,7 @@
 ### Hi there 👋
 
- 💬 Ask me about ducks !
+Ask me about ducks...
+<br>[linkedIn](https://www.linkedin.com/in/katarina-bedejova/)
 
 
 <!--
