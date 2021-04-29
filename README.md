@@ -1,7 +1,7 @@
 ### Hi there 👋
 
 Ask me about ducks...
-<br>[linkedIn](https://www.linkedin.com/in/katarina-bedejova/)
+<br>[linkedIn](https://www.linkedin.com/in/katarina-bedejova/) / [flickr](https://www.flickr.com/budmil/)
 
 
 <!--
