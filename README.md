@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Ask me about ducks...
+Ask me about duck memes...
 <br>[linkedIn](https://www.linkedin.com/in/katarina-bedejova/) / [flickr](https://www.flickr.com/budmil/)
 
 
