@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-Ask me about duck memes...
+If you're selling raccoons, contact me!
 <br>[linkedIn](https://www.linkedin.com/in/katarina-bedejova/) / [flickr](https://www.flickr.com/budmil/)
 
 
