@@ -1,6 +1,6 @@
-### Hi there 👋
+#### Howdy
 
-If you're selling raccoons, contact me!
+If you're selling raccoons, contact me
 <br>[linkedIn](https://www.linkedin.com/in/katarina-bedejova/) / [flickr](https://www.flickr.com/budmil/)
 
 
